@@ -7,7 +7,7 @@
 
 - 👨‍💻 All of my projects are available in [my Github repositories](https://github.com/ShivaniRawat18)
 
-- 📄 Check my resume by [clicking here](https://drive.google.com/file/d/1HUqmIYHsNG3jyGHwsGm-0ozZzRwWRrHN/view?usp=sharing)
+- 📄 Check my resume by [clicking here](https://drive.google.com/file/d/1ViX62RSzOVe33lXdGvhJCP0GYBUeGgsi/view?usp=sharing)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
